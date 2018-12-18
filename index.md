@@ -13,7 +13,7 @@ Students: $60
 PIs and Postdoctoral Researchers: $70
 
 
-** Directions **
+**Directions**
 
 Brandon's House
 
