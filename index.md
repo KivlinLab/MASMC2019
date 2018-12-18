@@ -42,7 +42,7 @@ Brandon's House
 ### Field Trip
 
 
-### Itenerary
+### Itinerary
 
 
 ## Abstracts
