@@ -8,9 +8,9 @@
 
 
 
-## **HOtel Accommodation**
+## **Hotel Accommodation**
 
-Hotel: Four Points by Sheraton Knoxville Cumberland House Hotel
+### Hotel: Four Points by Sheraton Knoxville Cumberland House Hotel
 
 Start Date: Friday, April 12, 2019
 
