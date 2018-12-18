@@ -1,4 +1,4 @@
-<img src=>
+<img src= [[https://github.com/KivlinLab/MASMC2019/master/img/SmokiesPicture.jpg|alt=Smokies]]>
 
 
 **Mid Atlantic States Mycological Conference 2019** 
