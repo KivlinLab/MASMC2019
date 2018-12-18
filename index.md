@@ -2,13 +2,13 @@
 
 
 
-# **Mid Atlantic States Mycological Conference 2019** 
+# **Mid-Atlantic States Mycological Conference 2019** 
 
 ## **Information**
 
 
 
-## **Registration**
+## **HOtel Accommodation**
 
 Hotel: Four Points by Sheraton Knoxville Cumberland House Hotel
 
@@ -20,7 +20,7 @@ Last Day to Book: Friday, March 15, 2019
 
 Cost: $97/night
 
-[link to Hotel Reservation] (https://www.marriott.com/events/start.mi?id=1544559373239&key=GRP)
+[link to Hotel Reservation](https://www.marriott.com/events/start.mi?id=1544559373239&key=GRP)
 
 
 
