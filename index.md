@@ -2,13 +2,13 @@
 
 
 
-**Mid Atlantic States Mycological Conference 2019** 
+# **Mid Atlantic States Mycological Conference 2019** 
 
-**Information**
+## **Information**
 
 
 
-**Registration**
+## **Registration**
 
 Hotel: Four Points by Sheraton Knoxville Cumberland House Hotel
 
@@ -24,25 +24,25 @@ Link: https://www.marriott.com/events/start.mi?id=1544559373239&key=GRP
 
 
 
-**Costs**
+## **Costs**
 Students: $60
 
 PIs and Postdoctoral Researchers: $70
 
 
-**Directions**
+## **Directions**
 
 Brandon's House
 
 
-Meeting
+### **Meeting**
 
 
 
-Field Trip
+### Field Trip
 
 
-Itenerary
+### Itenerary
 
 
-Abstracts
+## Abstracts
