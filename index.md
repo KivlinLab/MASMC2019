@@ -1,4 +1,4 @@
-![](/MASMC2019/SmokiesPicture.jpg)
+![](https://github.com/KivlinLab/MASMC2019/blob/master/SmokiesPicture.jpg?raw=true)
 
 
 
