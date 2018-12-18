@@ -1,5 +1,5 @@
-![GitHub Logo](/MASMC2019/SmokiesPicture.jpg)
-Format: ![Alt Text](url)
+![](/MASMC2019/SmokiesPicture.jpg)
+
 
 
 **Mid Atlantic States Mycological Conference 2019** 
