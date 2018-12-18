@@ -8,7 +8,7 @@
 
 
 **Registration**
-Link or Address
+Link: https://www.marriott.com/events/start.mi?id=1544559373239&key=GRP
 
 **Costs**
 Students: $60
