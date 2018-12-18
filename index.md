@@ -20,7 +20,7 @@ Last Day to Book: Friday, March 15, 2019
 
 Cost: $97/night
 
-Link: https://www.marriott.com/events/start.mi?id=1544559373239&key=GRP
+[link to Hotel Reservation] (https://www.marriott.com/events/start.mi?id=1544559373239&key=GRP)
 
 
 
