@@ -25,9 +25,11 @@ Cost: $97/night
 
 
 ## **Costs**
-Students: $60
+Students: $50
 
 PIs and Postdoctoral Researchers: $70
+
+Other registrants: $90
 
 
 ## **Directions**
@@ -44,5 +46,26 @@ Brandon's House
 
 ### Itinerary
 
+Friday, April 12
+
+Dinner at Brandon's House (See directions)
+
+
+Saturday, April 13
+
+Presentations
+
+Dinner Old City Knoxville
+
+
+Sunday, April 14
+
+Hike in the Smokies (See directions
+
+Lunch Provided
+
+
 
 ## Abstracts
+
+Abstracts will be accepted from February 15th, 2019 to April 5th 2019
