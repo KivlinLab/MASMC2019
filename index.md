@@ -31,6 +31,7 @@ PIs and Postdoctoral Researchers: $70
 
 Other registrants: $90
 
+Send personal check or cash to Brandon Matheny
 
 ## **Directions**
 
@@ -68,4 +69,6 @@ Lunch Provided
 
 ## Abstracts
 
-Abstracts will be accepted from February 15th, 2019 to April 5th 2019
+Abstracts will be accepted from February 15th, 2019 to March 15th 2019.
+
+Submit abstracts directly to Brandon Matheny (pmatheny.at.utk.edu)
