@@ -35,12 +35,11 @@ Send cash or personal check payable to the University of Tennessee.
 
 Mail registration payment to:
 
-Brandon Matheny
-Department of Ecology and Evolutionary Biology
-University of Tennessee
-Dabney Hall 569
-1416 Circle Drive
-Knoxville, TN 37996-1610
+Brandon Matheny, Department of Ecology and Evolutionary Biology
+
+University of Tennessee Dabney Hall 569
+
+1416 Circle Drive Knoxville, TN 37996-1610
 
 A reciept will be returned to you.
 
