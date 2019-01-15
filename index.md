@@ -24,18 +24,22 @@ Cost: $97/night
 
 
 
-## **Costs**
+## **Registration**
 Students: $50
 
-PIs and Postdoctoral Researchers: $70
+Postdoctoral Researchers: $70
 
 Other registrants: $90
 
-Send personal check or cash to Brandon Matheny
+Send cash or personal check payable to the University of Tennessee. 
+
+Mail registration payment to Brandon Matheny, Department of Ecology and Evolutionary Biology, University of Tennessee, Dabney Hall 569, 1416 Circle Drive, Knoxville, TN 37996-1610
+
+A reciept will be returned to you.
 
 ## **Directions**
 
-Brandon's House
+Brandon's House (Forthcoming)
 
 
 ### **Meeting**
@@ -56,7 +60,7 @@ Saturday, April 13
 
 Presentations
 
-Dinner Old City Knoxville
+Dinner Old City Knoxville (TBD)
 
 
 Sunday, April 14
