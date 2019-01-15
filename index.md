@@ -77,7 +77,7 @@ Dinner Old City Knoxville (TBD)
 
 Sunday, April 14
 
-Hike in the Smokies (See directions
+Hike in the Smokies (See directions)
 
 Lunch Provided
 
