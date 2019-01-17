@@ -72,7 +72,11 @@ Saturday, April 13
 
 Presentations
 
-Dinner Old City Knoxville (TBD)
+Dinner Old City Knoxville @ Central Collective
+
+923 N. Central St.
+
+Knoxville, TN 37917
 
 
 Sunday, April 14
