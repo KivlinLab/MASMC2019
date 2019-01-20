@@ -63,12 +63,12 @@ Brandon's House (Forthcoming)
 
 ### Itinerary
 
-Friday, April 12
+### Friday, April 12
 
 Dinner at Brandon's House (See directions)
 
 
-Saturday, April 13
+### Saturday, April 13
 
 Presentations
 
@@ -79,7 +79,7 @@ Dinner Old City Knoxville @ Central Collective
 Knoxville, TN 37917
 
 
-Sunday, April 14
+### Sunday, April 14
 
 Hike in the Smokies (See directions)
 
