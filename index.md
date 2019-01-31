@@ -60,38 +60,28 @@ Directions to 4 Points Sheraton Hotel – 1109 White Ave, Knoxville, TN 37916
 (865) 971-4663 – Parking should be free for MASMC
 
 From south and west – Take exit 388 off I-40/I-75 in downtown Knoxville towards Henley Street. Turn right off Henley onto Clinch Ave. 
-
 The Sun Sphere will be on your left. Turn left at the first light at 11th Street. Turn right after one block on White Avenue. 
 
 From the north – On I-75 south bound take I-275 south to Knoxville. Take the Western Ave. exit. Proceed straight onto 11th Street. Turn
-
 right after several blocks on White Avenue.
 
 
 From the east – On I-40 west bound take exit 388A, the University of Tennessee exit. You’ll be on the James White Parkway. Take the 
-
 first exit to the right at W. Summit Drive. Turn right onto W. Summit Drive. Proceed on Summit through several traffic lights. Turn left 
-
 on 11th Street. Turn right after a few blocks on White Avenue. 
 
 Directions to Brandon’s house – 1628 North Hills Blvd, Knoxville, TN 37917
 
 From the 4 Points Sheraton – Turn right onto 12th Street, then turn right onto Clinch. Turn left just past the Sun Sphere onto Henley 
-
 Street. Stay right. Take I-40 East to Asheville. Get off exit 390 – Cherry Street. Turn left onto Cherry Street. Proceed for about 0.5 
-
 miles to Cecil. Turn right onto Cecil for a few blocks and turn left on Kantebury. Take Kantebury down the steep hill and make the first 
-
 right onto North Hills Blvd. Take the first left onto (yes) North Hills Blvd – this a boulevard with a median. My house is the 4th one 
-
 on the right. Park carefully on the median.
 
 Directions to the Central Collective – 923 N. Central St, Knoxville, TN 37917
 
 From the 4 Points Sheraton – Turn right onto 12th Street, then turn right onto Clinch. Turn left just past the Sun Sphere onto Henley 
-
 Street. Stay left and proceed onto North Broadway. Turn left onto North Central. In about three blocks, the Central Collection will be 
-
 on your left. Plenty of parking.
 
 Directions to our Smokies field trip below
