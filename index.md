@@ -70,7 +70,7 @@ Dinner at Brandon's House (See directions)
 
 ### Saturday, April 13
 
-Presentations
+Presentations at the Baker Center (TBD)
 
 Dinner Old City Knoxville @ Central Collective
 
