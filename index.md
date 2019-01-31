@@ -49,11 +49,7 @@ Dabney Hall 569
 A reciept will be returned to you.
 
  
-## **Directions**
-
-DIRECTIONS TO MASMC 2019 – Knoxville, Tennessee
-
-Brandon Matheny (865) 244-5355
+ ## **Directions**
 
 Directions to 4 Points Sheraton Hotel – 1109 White Ave, Knoxville, TN 37916
 
@@ -71,6 +67,7 @@ first exit to the right at W. Summit Drive. Turn right onto W. Summit Drive. Pro
 on 11th Street. Turn right after a few blocks on White Avenue. 
 
 Directions to Brandon’s house – 1628 North Hills Blvd, Knoxville, TN 37917
+Brandon Matheny (865) 244-5355
 
 From the 4 Points Sheraton – Turn right onto 12th Street, then turn right onto Clinch. Turn left just past the Sun Sphere onto Henley 
 Street. Stay right. Take I-40 East to Asheville. Get off exit 390 – Cherry Street. Turn left onto Cherry Street. Proceed for about 0.5 
