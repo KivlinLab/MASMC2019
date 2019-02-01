@@ -91,6 +91,7 @@ Directions to our Smokies field trip below
 
 ### Field Trip
 
+Great Smoky Mountains National Park collecting permit
 
 ### Itinerary
 
