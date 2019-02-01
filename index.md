@@ -92,6 +92,8 @@ Directions to our Smokies field trip below
 ### Field Trip
 
  <a href="https://github.com/KivlinLab/MASMC2019/blob/master/GSMNP_CollectingPermit_2019.pdf" download="GSMNP_CollectingPermit_2019.pdf"> Great Smokey Mountains National Park collecting permit</a>
+ 
+ https://docs.google.com/viewer?url=${https://github.com/KivlinLab/MASMC2019/blob/master/GSMNP_CollectingPermit_2019.pdf}
 
 ### Itinerary
 
