@@ -104,7 +104,7 @@ Dinner at Brandon's House (See directions)
 
 Presentations at the Baker Center (TBD)
 
-Dinner Old City Knoxville @ Central Collective
+Dinner @ Central Collective
 
 923 N. Central St.
 
