@@ -1,5 +1,5 @@
 theme: jekyll-theme-tactile
 title: "MASMC 2019"
 description: "Mid-Atlantic States Mycological Conference @ The University of Tennessee"
-
+plugins:
 - jekyll-seo-tag
