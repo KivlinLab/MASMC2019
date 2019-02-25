@@ -107,7 +107,7 @@ Dinner at Brandon's House (See directions)
 
 ### Saturday, April 13
 
-Presentations at the Baker Center (TBD)
+Presentations in Mossman 102
 
 Dinner @ Central Collective
 
