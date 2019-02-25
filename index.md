@@ -51,7 +51,7 @@ Dabney Hall 569
 A reciept will be returned to you.
 
  
-### Itinerary
+## **Itinerary**
 
 ### Friday, April 12
 
@@ -77,7 +77,7 @@ Lunch Provided
 
 
 
-## Abstracts
+## **Abstracts**
 
 Abstracts will be accepted from February 15th, 2019 to March 15th 2019.
 
@@ -85,7 +85,7 @@ Submit abstracts directly to Brandon Matheny (pmatheny.at.utk.edu)
 
 
 
- ## **Directions**
+## **Directions**
 
 Directions to 4 Points Sheraton Hotel – 1109 White Ave, Knoxville, TN 37916
 
