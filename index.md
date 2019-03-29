@@ -62,6 +62,8 @@ Dinner at Brandon's House (See directions)
 
 Presentations Mossman 102 on UTK campus
 
+<a href="http://https://github.com/KivlinLab/MASMC2019/MASMCschedule13Apr.pdf"> Click here for the Conference Schedule.</a>
+
 Dinner @ Central Collective
 
 923 N. Central St.
@@ -112,6 +114,7 @@ right onto North Hills Blvd. Take the first left onto (yes) North Hills Blvd –
 on the right. Park carefully on the median.
 
 Directions to the Central Collective – 923 N. Central St, Knoxville, TN 37917
+
 
 From the 4 Points Sheraton – Turn right onto 12th Street, then turn right onto Clinch. Turn left just past the Sun Sphere onto Henley 
 Street. Stay left and proceed onto North Broadway. Turn left onto North Central. In about three blocks, the Central Collection will be 
