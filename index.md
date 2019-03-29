@@ -62,7 +62,7 @@ Dinner at Brandon's House (See directions)
 
 Presentations Mossman 102 on UTK campus
 
-<a href="https://github.com/KivlinLab/MASMC2019/MASMCschedule13Apr.pdf"> Click here for the Conference Schedule.</a>
+<a href="https://kivlinlab.github.io/MASMC2019/MASMCschedule13Apr.pdf"> Click here for the Conference Schedule.</a>
 
 Dinner @ Central Collective
 
