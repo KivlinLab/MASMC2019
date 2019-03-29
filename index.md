@@ -62,7 +62,7 @@ Dinner at Brandon's House (See directions)
 
 Presentations Mossman 102 on UTK campus
 
-<a href="https://kivlinlab.github.io/MASMC2019/MASMCschedule13Apr.pdf"> Click here for the Conference Schedule.</a>
+<a href="https://github.com/KivlinLab/MASMC2019/blob/master/MASMCschedule13Apr.pdf"> Click here for the Conference Schedule.</a>
 
 Dinner @ Central Collective
 
@@ -77,7 +77,7 @@ Hike in the Smokies (See directions)
 
 Lunch Provided
 
-<a href="https://github.com/KivlinLab/MASMC2019/MASMC_14AprFieldTripDirections.pdf"> Click here for Directions for the Field Trip.</a>
+<a href="https://github.com/KivlinLab/MASMC2019/blob/master/MASMC_14AprFieldTripDirections.pdf"> Click here for Directions for the Field Trip.</a>
 
 ## **Abstracts**
 
