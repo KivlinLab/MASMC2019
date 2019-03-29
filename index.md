@@ -77,7 +77,7 @@ Hike in the Smokies (See directions)
 
 Lunch Provided
 
-
+<a href="http://https://github.com/KivlinLab/MASMC2019/MASMC_14AprFieldTripDirections.pdf"> Click here for Directions for the Field Trip.</a>
 
 ## **Abstracts**
 
